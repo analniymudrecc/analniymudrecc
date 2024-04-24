@@ -1,4 +1,9 @@
-### Hi there 👋
+# Всем привет
+
+### Спешу сообщить, что я идиот и не умею выходить из аккаунтов на школьных компах))0)))))
+
+![image](https://github.com/analniymudrecc/analniymudrecc/assets/167622799/5a75ed20-4b56-4f3b-8941-5b48a4c98a0e)
+
 
 <!--
 **analniymudrecc/analniymudrecc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
